@@ -2,7 +2,7 @@
 ```
 Email zsu@zsusveganpantry.com
 ``` 
- Education
+**Education**
 ```
  Elgin Community College  Elgin, IL
  Harper Rainey College * Palatine, IL
